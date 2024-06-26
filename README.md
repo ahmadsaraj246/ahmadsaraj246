@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @ahmadsaraj246
+- 👀 I’m interested in job for Data Analyst
+- 🌱 I’m currently learning Data Analyst
+- 💞️ I’m looking to collaborate on
+- 📫 How to reach me ahmadsaraj246"gmail.com
+- 😄 Pronouns: ...
+- ⚡ Fun fact: ...
